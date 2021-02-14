@@ -1,4 +1,4 @@
-[![Christopher's GitHub Banner](./assets/github-header.jpeg)](https://www.linkedin.com/in/chris-montrond/)
+[![Christopher's GitHub Banner](./assets/github-header.png)](https://www.linkedin.com/in/chris-montrond/)
 
 [![Visits Badge](https://badges.pufler.dev/visits/cmontrond/cmontrond)](https://www.linkedin.com/in/chris-montrond/)
 [![Twitter Badge](https://img.shields.io/badge/Twitter-Profile-informational?style=flat&logo=twitter&logoColor=white&color=1CA2F1)](https://twitter.com/chris_montrond)
