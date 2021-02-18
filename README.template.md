@@ -99,7 +99,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-## 📣 How about an Game of Thrones quote before you go?
+## 📣 How about a Game of Thrones quote before you go?
 
 <br>
 
