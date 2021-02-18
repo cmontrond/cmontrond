@@ -99,13 +99,13 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-## 📣 How about an Game of Thrones quote before you go?
+## 📣 How about a Game of Thrones quote before you go?
 
 <br>
 
-> What good is this, I ask you? He who hurries through life hurries to his grave.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Davos</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
