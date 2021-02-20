@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
+> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
 >
-> <p>- Samwell</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
