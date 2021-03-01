@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
+> Never forget what you are, for surely the world will not. Make it your strength. Then it can never be your weakness. Armor yourself in it, and it will never be used to hurt you.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Tyrion</p>
 
 <br>
 
