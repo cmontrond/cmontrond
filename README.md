@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When you play the game of thrones, you win or you die. There is no middle ground.
+> Born amidst salt and smoke... is he a ham?
 >
-> <p>- Cersei Lannister</p>
+> <p>- Renly Baratheon</p>
 
 <br>
 
