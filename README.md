@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What happens when the non-existent bumps against the decrepit?
+> Do you lie awake at night fearing my gash?
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Varys</p>
 
 <br>
 
