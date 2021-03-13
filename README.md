@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Love is poison. A sweet poison, yes, but it will kill you all the same.
+> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Samwell</p>
 
 <br>
 
