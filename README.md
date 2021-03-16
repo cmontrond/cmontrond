@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Yes, all Lannisters are lions. And when a Tyrell farts, it smells like a rose. But how kind is he? How clever? Has he a good heart, a gentle hand?
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
