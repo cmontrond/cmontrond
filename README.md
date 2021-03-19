@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Every man should lose a battle in his youth, so he does not lose a war when he is old.
+> Let them see that their words can cut you, and you’ll never be free of the mockery. If they want to give you a name, take it, make it your own. Then they can’t hurt you with it anymore.
 >
-> <p>- Victarion Greyjoy</p>
+> <p>- Tyrion</p>
 
 <br>
 
