@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
+> Never forget what you are, for surely the world will not. Make it your strength. Then it can never be your weakness. Armor yourself in it, and it will never be used to hurt you.
 >
-> <p>- Jaime Lannister</p>
+> <p>- Tyrion</p>
 
 <br>
 
