@@ -120,7 +120,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> You love your children. It's your one redeeming quality - that, and your cheekbones.
+> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
 >
 > <p>- Tyrion</p>
 
