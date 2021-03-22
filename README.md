@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Every man should lose a battle in his youth, so he does not lose a war when he is old.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Victarion Greyjoy</p>
+> <p>- Bran</p>
 
 <br>
 
