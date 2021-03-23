@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When you play the game of thrones, you win or you die. There is no middle ground.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Bran</p>
 
 <br>
 
