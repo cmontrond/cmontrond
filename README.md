@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When you play the game of thrones, you win or you die. There is no middle ground.
+> You love your children. It's your one redeeming quality - that, and your cheekbones.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Tyrion</p>
 
 <br>
 
