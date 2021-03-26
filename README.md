@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
-> <p>- Lord Rodrik</p>
+> <p>- Tyrion</p>
 
 <br>
 
