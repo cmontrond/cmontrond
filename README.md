@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
+> Yes, all Lannisters are lions. And when a Tyrell farts, it smells like a rose. But how kind is he? How clever? Has he a good heart, a gentle hand?
 >
-> <p>- Lord Rodrik</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
