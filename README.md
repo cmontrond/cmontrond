@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
 >
-> <p>- Brynden Tully</p>
+> <p>- Tyrion</p>
 
 <br>
 
