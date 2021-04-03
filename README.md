@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Samwell</p>
+> <p>- Daenerys</p>
 
 <br>
 
