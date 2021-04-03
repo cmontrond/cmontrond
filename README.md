@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> Every man should lose a battle in his youth, so he does not lose a war when he is old.
 >
-> <p>- Daenerys</p>
+> <p>- Victarion Greyjoy</p>
 
 <br>
 
