@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Brynden Tully</p>
+> <p>- Daenerys</p>
 
 <br>
 
