@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When I was twelve, I milked my eel into a pot of turtle stew. I flogged the one-eyed snake, I skinned my sausage, I made the bald man cry, into the turtle stew! Which I do believe my sister ate, at least I hope she did.
+> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
 >
-> <p>- Tyrion</p>
+> <p>- Sansa</p>
 
 <br>
 
