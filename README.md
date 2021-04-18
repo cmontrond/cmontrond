@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Bronn</p>
+> <p>- Jon Snow</p>
 
 <br>
 
