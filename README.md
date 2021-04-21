@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What good is this, I ask you? He who hurries through life hurries to his grave.
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Davos</p>
+> <p>- Daenerys</p>
 
 <br>
 
