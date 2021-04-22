@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
+> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
 >
-> <p>- Tyrion</p>
+> <p>- Samwell</p>
 
 <br>
 
