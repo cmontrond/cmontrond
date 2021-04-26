@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Born amidst salt and smoke... is he a ham?
+> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
 >
-> <p>- Renly Baratheon</p>
+> <p>- Tyrion</p>
 
 <br>
 
