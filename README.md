@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When you play the game of thrones, you win or you die. There is no middle ground.
+> Why are all the gods such vicious cunts? Where's the god of tits and wine?
 >
-> <p>- Cersei Lannister</p>
+> <p>- Tyrion</p>
 
 <br>
 
