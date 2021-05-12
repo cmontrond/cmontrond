@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What happens when the non-existent bumps against the decrepit?
+> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
