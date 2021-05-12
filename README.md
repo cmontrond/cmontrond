@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
+> In the game of thrones, even the humblest pieces can have wills of their own. Sometimes they refuse to make the moves you’ve planned for them. Mark that well, Alayne. It’s a lesson that Cersei Lannister still has yet to learn.
 >
-> <p>- Bran</p>
+> <p>- Alayne</p>
 
 <br>
 
