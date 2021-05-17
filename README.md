@@ -120,7 +120,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> What happens when the non-existent bumps against the decrepit?
 >
 > <p>- Olenna Tyrell</p>
 
