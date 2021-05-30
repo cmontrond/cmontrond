@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> Why are all the gods such vicious cunts? Where's the god of tits and wine?
 >
-> <p>- Bronn</p>
+> <p>- Tyrion</p>
 
 <br>
 
