@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
+> The man is as useless as nipples on a breastplate.
 >
-> <p>- Tyrion</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
