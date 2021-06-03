@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Old stories are like old friends, she used to say. You have to visit them from time to time.
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Bran</p>
+> <p>- Jon Snow</p>
 
 <br>
 
