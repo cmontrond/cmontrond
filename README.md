@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> Every man should lose a battle in his youth, so he does not lose a war when he is old.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Victarion Greyjoy</p>
 
 <br>
 
