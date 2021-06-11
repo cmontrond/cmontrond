@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The man is as useless as nipples on a breastplate.
+> Power resides where men believe it resides. No more and no less.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Varys</p>
 
 <br>
 
