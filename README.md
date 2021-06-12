@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Born amidst salt and smoke... is he a ham?
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Renly Baratheon</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
