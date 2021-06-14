@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
+> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
 >
-> <p>- Jaime Lannister</p>
+> <p>- Cersei and Tyrion</p>
 
 <br>
 
