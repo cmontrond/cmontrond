@@ -120,7 +120,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When you play the game of thrones, you win or you die. There is no middle ground.
+> The man is as useless as nipples on a breastplate.
 >
 > <p>- Cersei Lannister</p>
 
