@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Bronn</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
