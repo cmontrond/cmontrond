@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Yes, all Lannisters are lions. And when a Tyrell farts, it smells like a rose. But how kind is he? How clever? Has he a good heart, a gentle hand?
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Bran</p>
 
 <br>
 
