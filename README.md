@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Samwell</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
