@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
+> The whores are walking bowlegged.
 >
-> <p>- Samwell</p>
+> <p>- Littlefinger</p>
 
 <br>
 
