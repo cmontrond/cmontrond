@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Why are all the gods such vicious cunts? Where's the god of tits and wine?
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Tyrion</p>
+> <p>- Davos</p>
 
 <br>
 
