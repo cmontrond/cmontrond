@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> There's no cure for being a cunt.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Bronn</p>
 
 <br>
 
