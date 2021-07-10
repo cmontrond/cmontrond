@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There’s no shame in fear, my father told me, what matters is how we face it.
+> History is a wheel, for the nature of man is fundamentally unchanging.
 >
-> <p>- Jon Snow</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
