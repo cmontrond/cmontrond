@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Love is poison. A sweet poison, yes, but it will kill you all the same.
+> A sword swallower, through and through.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
