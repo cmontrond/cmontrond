@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
+> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
 >
-> <p>- Bran</p>
+> <p>- Tyrion</p>
 
 <br>
 
