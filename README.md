@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Let them see that their words can cut you, and you’ll never be free of the mockery. If they want to give you a name, take it, make it your own. Then they can’t hurt you with it anymore.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Tyrion</p>
+> <p>- Bran</p>
 
 <br>
 
