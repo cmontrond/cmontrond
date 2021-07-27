@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
 >
-> <p>- Bronn</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
