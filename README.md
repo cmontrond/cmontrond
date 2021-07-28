@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- The Hound</p>
+> <p>- Bran</p>
 
 <br>
 
