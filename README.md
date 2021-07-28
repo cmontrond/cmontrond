@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Davos</p>
 
 <br>
 
