@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Do you lie awake at night fearing my gash?
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Varys</p>
+> <p>- Bran</p>
 
 <br>
 
