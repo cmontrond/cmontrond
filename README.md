@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
 >
-> <p>- Lord Rodrik</p>
+> <p>- The Hound</p>
 
 <br>
 
