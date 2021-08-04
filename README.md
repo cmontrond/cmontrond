@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What good is this, I ask you? He who hurries through life hurries to his grave.
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
-> <p>- Davos</p>
+> <p>- Tyrion</p>
 
 <br>
 
