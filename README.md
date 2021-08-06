@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What happens when the non-existent bumps against the decrepit?
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Davos</p>
 
 <br>
 
