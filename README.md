@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Do you lie awake at night fearing my gash?
+> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
 >
-> <p>- Varys</p>
+> <p>- Tyrion</p>
 
 <br>
 
