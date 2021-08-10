@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> No. Hear me, Daenerys Targaryen. The glass candles are burning. Soon comes the pale mare, and after her the others. Kraken and dark flame, lion and griffin, the sun’s son and the mummer’s dragon. Trust none of them. Remember the Undying. Beware the perfumed seneschal.
+> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
 >
-> <p>- Quaithe</p>
+> <p>- Bran</p>
 
 <br>
 
