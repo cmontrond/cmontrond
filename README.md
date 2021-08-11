@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> Power resides where men believe it resides. No more and no less.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Varys</p>
 
 <br>
 
