@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> Do you lie awake at night fearing my gash?
 >
-> <p>- Littlefinger</p>
+> <p>- Varys</p>
 
 <br>
 
