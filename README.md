@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> In the game of thrones, even the humblest pieces can have wills of their own. Sometimes they refuse to make the moves you’ve planned for them. Mark that well, Alayne. It’s a lesson that Cersei Lannister still has yet to learn.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Alayne</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
