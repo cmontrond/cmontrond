@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There’s no shame in fear, my father told me, what matters is how we face it.
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
-> <p>- Jon Snow</p>
+> <p>- Tyrion</p>
 
 <br>
 
