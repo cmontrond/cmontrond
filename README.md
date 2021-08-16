@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Daenerys</p>
+> <p>- Bran</p>
 
 <br>
 
