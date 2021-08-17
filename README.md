@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
+> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
 >
-> <p>- Jaime Lannister</p>
+> <p>- Sansa</p>
 
 <br>
 
