@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Samwell</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
