@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What good is this, I ask you? He who hurries through life hurries to his grave.
+> Power resides where men believe it resides. No more and no less.
 >
-> <p>- Davos</p>
+> <p>- Varys</p>
 
 <br>
 
