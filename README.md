@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Brynden Tully</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
