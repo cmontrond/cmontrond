@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
+> Always keep your foes confused. If they are never certain who you are or what you want, they cannot know what you are like to do next. Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.
 >
-> <p>- Tyrion</p>
+> <p>- Sansa</p>
 
 <br>
 
