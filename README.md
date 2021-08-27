@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
+> History is a wheel, for the nature of man is fundamentally unchanging.
 >
-> <p>- Jaime Lannister</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
