@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The greatest fools are ofttimes more clever than the men who laugh at them
+> Every man should lose a battle in his youth, so he does not lose a war when he is old.
 >
-> <p>- Tyrion</p>
+> <p>- Victarion Greyjoy</p>
 
 <br>
 
