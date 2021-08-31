@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Bran</p>
 
 <br>
 
