@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> Why are all the gods such vicious cunts? Where's the god of tits and wine?
 >
-> <p>- Lord Rodrik</p>
+> <p>- Tyrion</p>
 
 <br>
 
