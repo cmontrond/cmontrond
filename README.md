@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Power resides where men believe it resides. No more and no less.
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
-> <p>- Varys</p>
+> <p>- Tyrion</p>
 
 <br>
 
