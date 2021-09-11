@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Power resides where men believe it resides. No more and no less.
+> There's no cure for being a cunt.
 >
-> <p>- Varys</p>
+> <p>- Bronn</p>
 
 <br>
 
