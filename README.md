@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> You love your children. It's your one redeeming quality - that, and your cheekbones.
+> Love is poison. A sweet poison, yes, but it will kill you all the same.
 >
-> <p>- Tyrion</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
