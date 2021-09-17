@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Brynden Tully</p>
+> <p>- Davos</p>
 
 <br>
 
