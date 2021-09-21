@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
+> When I was twelve, I milked my eel into a pot of turtle stew. I flogged the one-eyed snake, I skinned my sausage, I made the bald man cry, into the turtle stew! Which I do believe my sister ate, at least I hope she did.
 >
-> <p>- The Hound</p>
+> <p>- Tyrion</p>
 
 <br>
 
