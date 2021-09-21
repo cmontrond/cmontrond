@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Every man should lose a battle in his youth, so he does not lose a war when he is old.
+> Born amidst salt and smoke... is he a ham?
 >
-> <p>- Victarion Greyjoy</p>
+> <p>- Renly Baratheon</p>
 
 <br>
 
