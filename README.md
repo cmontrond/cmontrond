@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When you play the game of thrones, you win or you die. There is no middle ground.
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
-> <p>- Cersei Lannister</p>
+> <p>- Tyrion</p>
 
 <br>
 
