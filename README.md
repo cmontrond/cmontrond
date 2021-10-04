@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Old stories are like old friends, she used to say. You have to visit them from time to time.
+> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
 >
-> <p>- Bran</p>
+> <p>- Tyrion</p>
 
 <br>
 
