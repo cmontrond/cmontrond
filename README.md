@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The greatest fools are ofttimes more clever than the men who laugh at them
+> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
 >
-> <p>- Tyrion</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
