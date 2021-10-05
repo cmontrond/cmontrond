@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Power resides where men believe it resides. No more and no less.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Varys</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
