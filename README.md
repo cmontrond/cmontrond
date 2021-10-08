@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What good is this, I ask you? He who hurries through life hurries to his grave.
+> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
 >
-> <p>- Davos</p>
+> <p>- The Hound</p>
 
 <br>
 
