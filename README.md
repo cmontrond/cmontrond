@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Born amidst salt and smoke... is he a ham?
+> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
 >
-> <p>- Renly Baratheon</p>
+> <p>- Sansa</p>
 
 <br>
 
