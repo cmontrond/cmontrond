@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Do you lie awake at night fearing my gash?
+> Born amidst salt and smoke... is he a ham?
 >
-> <p>- Varys</p>
+> <p>- Renly Baratheon</p>
 
 <br>
 
