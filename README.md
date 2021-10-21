@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Yes, all Lannisters are lions. And when a Tyrell farts, it smells like a rose. But how kind is he? How clever? Has he a good heart, a gentle hand?
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Davos</p>
 
 <br>
 
