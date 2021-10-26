@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Davos</p>
 
 <br>
 
