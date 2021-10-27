@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The man is as useless as nipples on a breastplate.
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
