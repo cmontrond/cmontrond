@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Sansa</p>
+> <p>- Bran</p>
 
 <br>
 
