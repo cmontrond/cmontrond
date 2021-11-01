@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Never forget what you are, for surely the world will not. Make it your strength. Then it can never be your weakness. Armor yourself in it, and it will never be used to hurt you.
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Tyrion</p>
+> <p>- Davos</p>
 
 <br>
 
