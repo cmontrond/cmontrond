@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Jon Snow</p>
 
 <br>
 
