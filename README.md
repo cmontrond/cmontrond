@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Why are all the gods such vicious cunts? Where's the god of tits and wine?
+> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
 >
-> <p>- Tyrion</p>
+> <p>- Sansa</p>
 
 <br>
 
