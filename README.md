@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Littlefinger</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
