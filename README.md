@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Power resides where men believe it resides. No more and no less.
+> It's not easy being drink all the time. If it were easy, everyone would do it.
 >
-> <p>- Varys</p>
+> <p>- Tyrion</p>
 
 <br>
 
