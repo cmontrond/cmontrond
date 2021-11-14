@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's not easy being drink all the time. If it were easy, everyone would do it.
+> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
 >
-> <p>- Tyrion</p>
+> <p>- Cersei and Tyrion</p>
 
 <br>
 
