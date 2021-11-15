@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
