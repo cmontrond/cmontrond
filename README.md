@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
+> Why are all the gods such vicious cunts? Where's the god of tits and wine?
 >
-> <p>- The Hound</p>
+> <p>- Tyrion</p>
 
 <br>
 
