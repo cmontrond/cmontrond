@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> You love your children. It's your one redeeming quality - that, and your cheekbones.
 >
-> <p>- Brynden Tully</p>
+> <p>- Tyrion</p>
 
 <br>
 
