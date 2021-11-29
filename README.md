@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Daenerys</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
