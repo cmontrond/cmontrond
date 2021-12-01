@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> You love your children. It's your one redeeming quality - that, and your cheekbones.
 >
-> <p>- Bronn</p>
+> <p>- Tyrion</p>
 
 <br>
 
