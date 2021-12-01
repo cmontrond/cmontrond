@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
+> You could make a poultice out of mud to cool a fever. You could plant seeds in mud and grow a crop to feed your children. Mud would nourish you, where fire would only consume you, but fools and children and young girls would choose fire every time.
 >
-> <p>- Sansa</p>
+> <p>- The Discarded Knight</p>
 
 <br>
 
