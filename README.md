@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Let them see that their words can cut you, and you’ll never be free of the mockery. If they want to give you a name, take it, make it your own. Then they can’t hurt you with it anymore.
+> Yes, all Lannisters are lions. And when a Tyrell farts, it smells like a rose. But how kind is he? How clever? Has he a good heart, a gentle hand?
 >
-> <p>- Tyrion</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
