@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There’s no shame in fear, my father told me, what matters is how we face it.
+> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
 >
-> <p>- Jon Snow</p>
+> <p>- Bran</p>
 
 <br>
 
