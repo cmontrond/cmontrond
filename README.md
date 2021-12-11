@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
+> You could make a poultice out of mud to cool a fever. You could plant seeds in mud and grow a crop to feed your children. Mud would nourish you, where fire would only consume you, but fools and children and young girls would choose fire every time.
 >
-> <p>- Bran</p>
+> <p>- The Discarded Knight</p>
 
 <br>
 
