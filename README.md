@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The man is as useless as nipples on a breastplate.
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
