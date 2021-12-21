@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> Do you lie awake at night fearing my gash?
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Varys</p>
 
 <br>
 
