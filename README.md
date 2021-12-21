@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Tyrion</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
