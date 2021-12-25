@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> You love your children. It's your one redeeming quality - that, and your cheekbones.
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Tyrion</p>
+> <p>- Daenerys</p>
 
 <br>
 
