@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> You love your children. It's your one redeeming quality - that, and your cheekbones.
+> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
 >
-> <p>- Tyrion</p>
+> <p>- Bran</p>
 
 <br>
 
