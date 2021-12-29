@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Power resides where men believe it resides. No more and no less.
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Varys</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
