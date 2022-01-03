@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
-> <p>- Littlefinger</p>
+> <p>- Tyrion</p>
 
 <br>
 
