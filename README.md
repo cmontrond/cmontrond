@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What happens when the non-existent bumps against the decrepit?
+> History is a wheel, for the nature of man is fundamentally unchanging.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
