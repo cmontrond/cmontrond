@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> The whores are walking bowlegged.
 >
-> <p>- Daenerys</p>
+> <p>- Littlefinger</p>
 
 <br>
 
