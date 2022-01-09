@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
