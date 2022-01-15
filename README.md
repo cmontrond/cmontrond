@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
 >
-> <p>- Bronn</p>
+> <p>- Samwell</p>
 
 <br>
 
