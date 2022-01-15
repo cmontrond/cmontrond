@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Sansa</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
