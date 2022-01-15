@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Do you lie awake at night fearing my gash?
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Varys</p>
+> <p>- Jon Snow</p>
 
 <br>
 
