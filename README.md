@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Brynden Tully</p>
+> <p>- Jon Snow</p>
 
 <br>
 
