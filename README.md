@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
+> No. Hear me, Daenerys Targaryen. The glass candles are burning. Soon comes the pale mare, and after her the others. Kraken and dark flame, lion and griffin, the sun’s son and the mummer’s dragon. Trust none of them. Remember the Undying. Beware the perfumed seneschal.
 >
-> <p>- Sansa</p>
+> <p>- Quaithe</p>
 
 <br>
 
