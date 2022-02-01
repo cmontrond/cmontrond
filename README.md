@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What happens when the non-existent bumps against the decrepit?
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Bran</p>
 
 <br>
 
