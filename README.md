@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Born amidst salt and smoke... is he a ham?
+> Why are all the gods such vicious cunts? Where's the god of tits and wine?
 >
-> <p>- Renly Baratheon</p>
+> <p>- Tyrion</p>
 
 <br>
 
