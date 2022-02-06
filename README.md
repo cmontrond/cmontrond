@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
+> Do you lie awake at night fearing my gash?
 >
-> <p>- Samwell</p>
+> <p>- Varys</p>
 
 <br>
 
