@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Do you lie awake at night fearing my gash?
+> Every man should lose a battle in his youth, so he does not lose a war when he is old.
 >
-> <p>- Varys</p>
+> <p>- Victarion Greyjoy</p>
 
 <br>
 
