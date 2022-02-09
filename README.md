@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Old stories are like old friends, she used to say. You have to visit them from time to time.
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Bran</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
