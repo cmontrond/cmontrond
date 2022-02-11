@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The fisherman drowned, but his daughter got Stark to the Sisters before the boat went down. They say he left her with a bag of silver and a bastard in her belly. Jon Snow, she named him, after Arryn.
+> When I was twelve, I milked my eel into a pot of turtle stew. I flogged the one-eyed snake, I skinned my sausage, I made the bald man cry, into the turtle stew! Which I do believe my sister ate, at least I hope she did.
 >
-> <p>- Davos</p>
+> <p>- Tyrion</p>
 
 <br>
 
