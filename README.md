@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> You love your children. It's your one redeeming quality - that, and your cheekbones.
 >
-> <p>- Littlefinger</p>
+> <p>- Tyrion</p>
 
 <br>
 
