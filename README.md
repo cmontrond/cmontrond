@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Cersei and Tyrion</p>
 
 <br>
 
