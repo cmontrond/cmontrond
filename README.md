@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Why are all the gods such vicious cunts? Where's the god of tits and wine?
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Tyrion</p>
+> <p>- Bran</p>
 
 <br>
 
