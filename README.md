@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Born amidst salt and smoke... is he a ham?
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
-> <p>- Renly Baratheon</p>
+> <p>- Tyrion</p>
 
 <br>
 
