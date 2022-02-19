@@ -120,7 +120,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
+> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
 >
 > <p>- Tyrion</p>
 
