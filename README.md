@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Why are all the gods such vicious cunts? Where's the god of tits and wine?
+> The man is as useless as nipples on a breastplate.
 >
-> <p>- Tyrion</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
