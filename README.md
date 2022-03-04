@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> Love is poison. A sweet poison, yes, but it will kill you all the same.
 >
-> <p>- Daenerys</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
