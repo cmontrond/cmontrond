@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
+> The fisherman drowned, but his daughter got Stark to the Sisters before the boat went down. They say he left her with a bag of silver and a bastard in her belly. Jon Snow, she named him, after Arryn.
 >
-> <p>- Jaime Lannister</p>
+> <p>- Davos</p>
 
 <br>
 
