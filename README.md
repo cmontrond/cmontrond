@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What good is this, I ask you? He who hurries through life hurries to his grave.
+> Do you lie awake at night fearing my gash?
 >
-> <p>- Davos</p>
+> <p>- Varys</p>
 
 <br>
 
