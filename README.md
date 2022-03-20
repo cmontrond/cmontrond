@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
+> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Tyrion</p>
 
 <br>
 
