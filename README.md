@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> Love is poison. A sweet poison, yes, but it will kill you all the same.
 >
-> <p>- Bronn</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
