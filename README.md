@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Do you lie awake at night fearing my gash?
+> You love your children. It's your one redeeming quality - that, and your cheekbones.
 >
-> <p>- Varys</p>
+> <p>- Tyrion</p>
 
 <br>
 
