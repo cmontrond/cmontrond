@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> You love your children. It's your one redeeming quality - that, and your cheekbones.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Tyrion</p>
 
 <br>
 
