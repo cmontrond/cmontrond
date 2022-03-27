@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Bronn</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
