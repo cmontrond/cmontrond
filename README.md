@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
+> Why are all the gods such vicious cunts? Where's the god of tits and wine?
 >
-> <p>- Jaime Lannister</p>
+> <p>- Tyrion</p>
 
 <br>
 
