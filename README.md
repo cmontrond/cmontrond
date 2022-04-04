@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Do you lie awake at night fearing my gash?
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Varys</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
