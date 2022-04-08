@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Bran</p>
 
 <br>
 
