@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- The Hound</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
