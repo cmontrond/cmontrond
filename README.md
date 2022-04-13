@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Jon Snow</p>
 
 <br>
 
