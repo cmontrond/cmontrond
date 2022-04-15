@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Every man should lose a battle in his youth, so he does not lose a war when he is old.
+> Always keep your foes confused. If they are never certain who you are or what you want, they cannot know what you are like to do next. Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.
 >
-> <p>- Victarion Greyjoy</p>
+> <p>- Sansa</p>
 
 <br>
 
