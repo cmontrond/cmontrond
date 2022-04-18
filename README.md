@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> The whores are walking bowlegged.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Littlefinger</p>
 
 <br>
 
