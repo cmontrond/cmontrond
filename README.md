@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Tyrion</p>
+> <p>- Davos</p>
 
 <br>
 
