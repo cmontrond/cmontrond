@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
 >
-> <p>- Bronn</p>
+> <p>- Cersei and Tyrion</p>
 
 <br>
 
