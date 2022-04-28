@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
+> It's not easy being drink all the time. If it were easy, everyone would do it.
 >
-> <p>- Jaime Lannister</p>
+> <p>- Tyrion</p>
 
 <br>
 
