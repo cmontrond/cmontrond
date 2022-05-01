@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> It's not easy being drink all the time. If it were easy, everyone would do it.
 >
-> <p>- Littlefinger</p>
+> <p>- Tyrion</p>
 
 <br>
 
