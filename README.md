@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Tyrion</p>
+> <p>- Bran</p>
 
 <br>
 
