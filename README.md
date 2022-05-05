@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Love is poison. A sweet poison, yes, but it will kill you all the same.
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
