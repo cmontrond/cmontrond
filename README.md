@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> Do you lie awake at night fearing my gash?
 >
-> <p>- Daenerys</p>
+> <p>- Varys</p>
 
 <br>
 
