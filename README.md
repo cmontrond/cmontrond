@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> Power resides where men believe it resides. No more and no less.
 >
-> <p>- Littlefinger</p>
+> <p>- Varys</p>
 
 <br>
 
