@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Let them see that their words can cut you, and you’ll never be free of the mockery. If they want to give you a name, take it, make it your own. Then they can’t hurt you with it anymore.
+> In the game of thrones, even the humblest pieces can have wills of their own. Sometimes they refuse to make the moves you’ve planned for them. Mark that well, Alayne. It’s a lesson that Cersei Lannister still has yet to learn.
 >
-> <p>- Tyrion</p>
+> <p>- Alayne</p>
 
 <br>
 
