@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Yes, all Lannisters are lions. And when a Tyrell farts, it smells like a rose. But how kind is he? How clever? Has he a good heart, a gentle hand?
+> If you would take a man’s life, you owe it to him to look into his eyes and hear his final words. And if you cannot bear to do that, then perhaps the man does not deserve to die.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Bran</p>
 
 <br>
 
