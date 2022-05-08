@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Love is poison. A sweet poison, yes, but it will kill you all the same.
+> The fisherman drowned, but his daughter got Stark to the Sisters before the boat went down. They say he left her with a bag of silver and a bastard in her belly. Jon Snow, she named him, after Arryn.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Davos</p>
 
 <br>
 
