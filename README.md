@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Why are all the gods such vicious cunts? Where's the god of tits and wine?
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Tyrion</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
