@@ -120,7 +120,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Love is poison. A sweet poison, yes, but it will kill you all the same.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
 > <p>- Cersei Lannister</p>
 
