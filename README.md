@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The greatest fools are ofttimes more clever than the men who laugh at them
+> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
 >
-> <p>- Tyrion</p>
+> <p>- The Hound</p>
 
 <br>
 
