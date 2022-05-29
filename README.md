@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Every man should lose a battle in his youth, so he does not lose a war when he is old.
+> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
 >
-> <p>- Victarion Greyjoy</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
