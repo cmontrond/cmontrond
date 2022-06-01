@@ -120,7 +120,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
 >
 > <p>- Lord Rodrik</p>
 
