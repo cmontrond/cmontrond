@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> Born amidst salt and smoke... is he a ham?
 >
-> <p>- Lord Rodrik</p>
+> <p>- Renly Baratheon</p>
 
 <br>
 
