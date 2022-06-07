@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Bran</p>
 
 <br>
 
