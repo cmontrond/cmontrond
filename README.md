@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Tyrion</p>
+> <p>- Daenerys</p>
 
 <br>
 
