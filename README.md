@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
+> Love is poison. A sweet poison, yes, but it will kill you all the same.
 >
-> <p>- Bran</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
