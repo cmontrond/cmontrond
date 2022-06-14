@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> History is a wheel, for the nature of man is fundamentally unchanging.
 >
-> <p>- Daenerys</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
