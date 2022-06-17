@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> It's not easy being drink all the time. If it were easy, everyone would do it.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Tyrion</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
