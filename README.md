@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Littlefinger</p>
+> <p>- Davos</p>
 
 <br>
 
