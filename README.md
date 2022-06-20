@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Tyrion</p>
+> <p>- Jon Snow</p>
 
 <br>
 
