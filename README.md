@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When you play the game of thrones, you win or you die. There is no middle ground.
+> Every man should lose a battle in his youth, so he does not lose a war when he is old.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Victarion Greyjoy</p>
 
 <br>
 
