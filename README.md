@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> You love your children. It's your one redeeming quality - that, and your cheekbones.
+> History is a wheel, for the nature of man is fundamentally unchanging.
 >
-> <p>- Tyrion</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
