@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The fisherman drowned, but his daughter got Stark to the Sisters before the boat went down. They say he left her with a bag of silver and a bastard in her belly. Jon Snow, she named him, after Arryn.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Davos</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
