@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Why are all the gods such vicious cunts? Where's the god of tits and wine?
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Tyrion</p>
+> <p>- Daenerys</p>
 
 <br>
 
