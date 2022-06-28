@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What happens when the non-existent bumps against the decrepit?
+> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Cersei and Tyrion</p>
 
 <br>
 
