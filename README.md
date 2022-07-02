@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
+> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
 >
-> <p>- Sansa</p>
+> <p>- Samwell</p>
 
 <br>
 
