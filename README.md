@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There’s no shame in fear, my father told me, what matters is how we face it.
+> When I was twelve, I milked my eel into a pot of turtle stew. I flogged the one-eyed snake, I skinned my sausage, I made the bald man cry, into the turtle stew! Which I do believe my sister ate, at least I hope she did.
 >
-> <p>- Jon Snow</p>
+> <p>- Tyrion</p>
 
 <br>
 
