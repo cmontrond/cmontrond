@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The fisherman drowned, but his daughter got Stark to the Sisters before the boat went down. They say he left her with a bag of silver and a bastard in her belly. Jon Snow, she named him, after Arryn.
+> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
 >
-> <p>- Davos</p>
+> <p>- Tyrion</p>
 
 <br>
 
