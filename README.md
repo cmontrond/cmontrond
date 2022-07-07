@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> A sword swallower, through and through.
+> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Sansa</p>
 
 <br>
 
