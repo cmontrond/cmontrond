@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Daenerys</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
