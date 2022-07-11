@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> History is a wheel, for the nature of man is fundamentally unchanging.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
