@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
