@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
+> Yes, all Lannisters are lions. And when a Tyrell farts, it smells like a rose. But how kind is he? How clever? Has he a good heart, a gentle hand?
 >
-> <p>- Samwell</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
