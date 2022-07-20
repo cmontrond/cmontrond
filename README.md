@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Every man should lose a battle in his youth, so he does not lose a war when he is old.
+> The man is as useless as nipples on a breastplate.
 >
-> <p>- Victarion Greyjoy</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
