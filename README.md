@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Bronn</p>
+> <p>- Daenerys</p>
 
 <br>
 
