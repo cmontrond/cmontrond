@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
+> Never forget what you are, for surely the world will not. Make it your strength. Then it can never be your weakness. Armor yourself in it, and it will never be used to hurt you.
 >
-> <p>- Bran</p>
+> <p>- Tyrion</p>
 
 <br>
 
