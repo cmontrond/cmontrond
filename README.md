@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Old stories are like old friends, she used to say. You have to visit them from time to time.
+> Power resides where men believe it resides. No more and no less.
 >
-> <p>- Bran</p>
+> <p>- Varys</p>
 
 <br>
 
