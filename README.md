@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Davos</p>
 
 <br>
 
