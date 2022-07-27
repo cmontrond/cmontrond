@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> Why are all the gods such vicious cunts? Where's the god of tits and wine?
 >
-> <p>- Brynden Tully</p>
+> <p>- Tyrion</p>
 
 <br>
 
