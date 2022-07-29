@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Tyrion</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
