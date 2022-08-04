@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> Do you lie awake at night fearing my gash?
 >
-> <p>- Bronn</p>
+> <p>- Varys</p>
 
 <br>
 
