@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
+> It's not easy being drink all the time. If it were easy, everyone would do it.
 >
-> <p>- The Hound</p>
+> <p>- Tyrion</p>
 
 <br>
 
