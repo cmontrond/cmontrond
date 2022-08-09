@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What happens when the non-existent bumps against the decrepit?
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
