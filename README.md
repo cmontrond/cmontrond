@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
+> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
 >
-> <p>- The Hound</p>
+> <p>- Lord Rodrik</p>
 
 <br>
 
