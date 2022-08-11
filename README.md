@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> A sword swallower, through and through.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
