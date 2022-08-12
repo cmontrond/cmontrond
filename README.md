@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Tyrion</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
