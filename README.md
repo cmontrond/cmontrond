@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> If you would take a man’s life, you owe it to him to look into his eyes and hear his final words. And if you cannot bear to do that, then perhaps the man does not deserve to die.
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Bran</p>
+> <p>- Jon Snow</p>
 
 <br>
 
