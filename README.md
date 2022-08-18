@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Every man should lose a battle in his youth, so he does not lose a war when he is old.
+> You love your children. It's your one redeeming quality - that, and your cheekbones.
 >
-> <p>- Victarion Greyjoy</p>
+> <p>- Tyrion</p>
 
 <br>
 
