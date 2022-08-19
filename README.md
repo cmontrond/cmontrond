@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Tyrion</p>
+> <p>- Daenerys</p>
 
 <br>
 
