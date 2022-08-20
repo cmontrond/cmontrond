@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
+> Love is poison. A sweet poison, yes, but it will kill you all the same.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
