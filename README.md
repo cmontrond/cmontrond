@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
