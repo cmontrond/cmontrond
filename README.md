@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
+> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
 >
-> <p>- Tyrion</p>
+> <p>- Sansa</p>
 
 <br>
 
