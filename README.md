@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The man is as useless as nipples on a breastplate.
+> There's no cure for being a cunt.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Bronn</p>
 
 <br>
 
