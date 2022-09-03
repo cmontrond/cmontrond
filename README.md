@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
 >
-> <p>- Bronn</p>
+> <p>- Sansa</p>
 
 <br>
 
