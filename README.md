@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I prefer my history dead. Dead history is writ in ink, the living sort in blood.
+> Power resides where men believe it resides. No more and no less.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Varys</p>
 
 <br>
 
