@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Samwell</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
