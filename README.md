@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- The Hound</p>
+> <p>- Jon Snow</p>
 
 <br>
 
