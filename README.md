@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Littlefinger</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
