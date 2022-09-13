@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The greatest fools are ofttimes more clever than the men who laugh at them
+> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
 >
-> <p>- Tyrion</p>
+> <p>- Bran</p>
 
 <br>
 
