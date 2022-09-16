@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Yes, all Lannisters are lions. And when a Tyrell farts, it smells like a rose. But how kind is he? How clever? Has he a good heart, a gentle hand?
+> Why are all the gods such vicious cunts? Where's the god of tits and wine?
 >
-> <p>- Olenna Tyrell</p>
+> <p>- Tyrion</p>
 
 <br>
 
