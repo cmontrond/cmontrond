@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> One voice may speak you false, but in many there is always truth to be found.
+> A sword swallower, through and through.
 >
-> <p>- Daenerys</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
