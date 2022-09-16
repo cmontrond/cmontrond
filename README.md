@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Littlefinger</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
