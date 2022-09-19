@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Love is poison. A sweet poison, yes, but it will kill you all the same.
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
-> <p>- Cersei Lannister</p>
+> <p>- Tyrion</p>
 
 <br>
 
