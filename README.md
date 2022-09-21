@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The man is as useless as nipples on a breastplate.
+> One voice may speak you false, but in many there is always truth to be found.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Daenerys</p>
 
 <br>
 
