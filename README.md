@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> Do you lie awake at night fearing my gash?
 >
-> <p>- Lord Rodrik</p>
+> <p>- Varys</p>
 
 <br>
 
