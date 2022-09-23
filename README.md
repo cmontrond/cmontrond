@@ -120,7 +120,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The man is as useless as nipples on a breastplate.
+> Love is poison. A sweet poison, yes, but it will kill you all the same.
 >
 > <p>- Cersei Lannister</p>
 
