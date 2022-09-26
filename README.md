@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There’s no shame in fear, my father told me, what matters is how we face it.
+> You love your children. It's your one redeeming quality - that, and your cheekbones.
 >
-> <p>- Jon Snow</p>
+> <p>- Tyrion</p>
 
 <br>
 
