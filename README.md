@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Love is poison. A sweet poison, yes, but it will kill you all the same.
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
