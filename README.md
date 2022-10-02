@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Born amidst salt and smoke... is he a ham?
+> The whores are walking bowlegged.
 >
-> <p>- Renly Baratheon</p>
+> <p>- Littlefinger</p>
 
 <br>
 
