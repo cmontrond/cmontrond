@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> Knowledge is a weapon, Jon. Arm yourself well before you ride forth to battle.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Samwell</p>
 
 <br>
 
