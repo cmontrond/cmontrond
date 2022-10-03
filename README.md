@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The whores are walking bowlegged.
+> The man is as useless as nipples on a breastplate.
 >
-> <p>- Littlefinger</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
