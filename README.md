@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> Born amidst salt and smoke... is he a ham?
 >
-> <p>- Brynden Tully</p>
+> <p>- Renly Baratheon</p>
 
 <br>
 
