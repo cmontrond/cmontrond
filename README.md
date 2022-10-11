@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The greatest fools are ofttimes more clever than the men who laugh at them
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Tyrion</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
