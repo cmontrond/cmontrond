@@ -120,7 +120,7 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Why are all the gods such vicious cunts? Where's the god of tits and wine?
+> The greatest fools are ofttimes more clever than the men who laugh at them
 >
 > <p>- Tyrion</p>
 
