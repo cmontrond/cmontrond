@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> In the game of thrones, even the humblest pieces can have wills of their own. Sometimes they refuse to make the moves you’ve planned for them. Mark that well, Alayne. It’s a lesson that Cersei Lannister still has yet to learn.
+> Old stories are like old friends, she used to say. You have to visit them from time to time.
 >
-> <p>- Alayne</p>
+> <p>- Bran</p>
 
 <br>
 
