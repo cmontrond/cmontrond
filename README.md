@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Let them see that their words can cut you, and you’ll never be free of the mockery. If they want to give you a name, take it, make it your own. Then they can’t hurt you with it anymore.
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Tyrion</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
