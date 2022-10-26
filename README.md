@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Why are all the gods such vicious cunts? Where's the god of tits and wine?
+> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
 >
-> <p>- Tyrion</p>
+> <p>- Bran</p>
 
 <br>
 
