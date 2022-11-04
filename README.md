@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
 >
-> <p>- Brynden Tully</p>
+> <p>- The Hound</p>
 
 <br>
 
