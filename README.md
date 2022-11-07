@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Born amidst salt and smoke... is he a ham?
+> It's not easy being drink all the time. If it were easy, everyone would do it.
 >
-> <p>- Renly Baratheon</p>
+> <p>- Tyrion</p>
 
 <br>
 
