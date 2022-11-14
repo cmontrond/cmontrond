@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> When you play the game of thrones, you win or you die. There is no middle ground.
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Davos</p>
 
 <br>
 
