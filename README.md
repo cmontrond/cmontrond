@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> History is a wheel, for the nature of man is fundamentally unchanging.
+> What good is this, I ask you? He who hurries through life hurries to his grave.
 >
-> <p>- Lord Rodrik</p>
+> <p>- Davos</p>
 
 <br>
 
