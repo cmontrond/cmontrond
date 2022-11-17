@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> I've seen wet sh*ts I liked better than Walder Frey.
+> Every man should lose a battle in his youth, so he does not lose a war when he is old.
 >
-> <p>- Brynden Tully</p>
+> <p>- Victarion Greyjoy</p>
 
 <br>
 
