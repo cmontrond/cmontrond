@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> What good is this, I ask you? He who hurries through life hurries to his grave.
+> It's a shame the throne isn't made out of cocks, they'd have never got him off it.
 >
-> <p>- Davos</p>
+> <p>- Jaime Lannister</p>
 
 <br>
 
