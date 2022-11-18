@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Born amidst salt and smoke... is he a ham?
+> What happens when the non-existent bumps against the decrepit?
 >
-> <p>- Renly Baratheon</p>
+> <p>- Olenna Tyrell</p>
 
 <br>
 
