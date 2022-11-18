@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> You could make a poultice out of mud to cool a fever. You could plant seeds in mud and grow a crop to feed your children. Mud would nourish you, where fire would only consume you, but fools and children and young girls would choose fire every time.
+> Grand Maester Pycelle made that same joke. You must be proud to be as funny as a man whose balls brush his knees.
 >
-> <p>- The Discarded Knight</p>
+> <p>- Tyrion</p>
 
 <br>
 
