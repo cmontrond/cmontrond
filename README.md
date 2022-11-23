@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> Everyone wants something, Alayne. And when you know what a man wants you know who he is, and how to move him.
+> Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
 >
-> <p>- Sansa</p>
+> <p>- Bran</p>
 
 <br>
 
