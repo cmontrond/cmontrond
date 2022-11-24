@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> The man is as useless as nipples on a breastplate.
+> There’s no shame in fear, my father told me, what matters is how we face it.
 >
-> <p>- Cersei Lannister</p>
+> <p>- Jon Snow</p>
 
 <br>
 
