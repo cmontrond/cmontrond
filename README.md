@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> 'It's all fallen on me..', 'As has Jaime repeatedly, according to Stannis Baratheon.'
+> I've seen wet sh*ts I liked better than Walder Frey.
 >
-> <p>- Cersei and Tyrion</p>
+> <p>- Brynden Tully</p>
 
 <br>
 
