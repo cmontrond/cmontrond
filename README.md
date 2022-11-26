@@ -120,9 +120,9 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <br>
 
-> There's no cure for being a cunt.
+> When you play the game of thrones, you win or you die. There is no middle ground.
 >
-> <p>- Bronn</p>
+> <p>- Cersei Lannister</p>
 
 <br>
 
