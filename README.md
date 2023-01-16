@@ -2,7 +2,7 @@
 
 <br>
 
-<!-- [![Visits Badge](https://badges.pufler.dev/visits/cmontrond/cmontrond)](https://www.linkedin.com/in/chris-montrond/) -->
+[![Visits Badge](https://badges.pufler.dev/visits/cmontrond/cmontrond)](https://www.linkedin.com/in/chris-montrond/)
 [![Twitter Badge](https://img.shields.io/badge/Twitter-Profile-informational?style=flat&logo=twitter&logoColor=white&color=1CA2F1)](https://twitter.com/chris_montrond)
 [![LinkedIn Badge](https://img.shields.io/badge/LinkedIn-Profile-informational?style=flat&logo=linkedin&logoColor=white&color=0D76A8)](https://www.linkedin.com/in/chris-montrond/)
 
@@ -26,10 +26,27 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 
 <!-- BLOG-POST-LIST:END -->
 
-<!-- ## 📌 Pinned Repositories -->
+<br>
 
-<!-- Coming Soon.. -->
+## 📌 Pinned Repositories
 
+<br>
+
+<a href="https://github.com/cmontrond/ai-neural-ocr">
+  <img align="center" style="margin:1rem 0.5rem" src="https://github-readme-stats.vercel.app/api/pin/?username=cmontrond&repo=ai-neural-ocr&title_color=ffffff&text_color=c9cacc&icon_color=4AB197&bg_color=1A2B34" />
+</a>
+
+<a href="https://github.com/cmontrond/ai-genetic-cars">
+  <img align="center" style="margin:0.5rem" src="https://github-readme-stats.vercel.app/api/pin/?username=cmontrond&repo=ai-genetic-cars&title_color=ffffff&text_color=c9cacc&icon_color=4AB197&bg_color=1A2B34" />
+</a>
+
+<br>
+
+<a href="https://github.com/cmontrond/GoPiGoLib">
+  <img align="center" style="margin:0.5rem" src="https://github-readme-stats.vercel.app/api/pin/?username=cmontrond&repo=GoPiGoLib&title_color=ffffff&text_color=c9cacc&icon_color=4AB197&bg_color=1A2B34" />
+</a>
+
+<br>
 <br>
 
 ## &#x1f4c8; GitHub Stats
