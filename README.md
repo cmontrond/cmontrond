@@ -96,21 +96,3 @@ Want to know more about me? [Check out my LinkedIn.](https://www.linkedin.com/in
 ![](https://img.shields.io/badge/Tools-Trello-informational?style=flat&logo=trello&logoColor=white&color=4AB197)
 ![](https://img.shields.io/badge/Tools-VSCode-informational?style=flat&logo=Visual%20Studio%20Code&logoColor=white&color=4AB197)
 </details>
-
-<br>
-
-## 📣 How about a Game of Thrones quote before you go?
-
-<br>
-
-> I understand that if anymore words come pouring out your cunt mouth, I'm going to have to eat every fucking chicken in this room.
->
-> <p>- The Hound</p>
-
-<br>
-
-_Quote requested from [The Game of Thrones Quotes API](https://github.com/wsizoo/game-of-thrones-quotes)_
-
-Check back at the top of the hour for a new quote!
-
-<br>
